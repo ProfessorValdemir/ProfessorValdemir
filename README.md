@@ -8,3 +8,4 @@ Meu nome é _Valdemir D. Mendes_
   ### Meu Contato 📬
   _valdemir.mendes@escola.pr.gov.br_
 
+![](https://media1.tenor.com/m/RzSPDIqkgoIAAAAC/goku-dragon-ball-z.gif)
